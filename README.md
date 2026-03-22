@@ -9,4 +9,4 @@ Fun Facts
 - Wolves Season Ticket Holder for 8+ years
 - Football Manager Advocate with over 7000 hours in the games.
 - Ex World of Warcraft raider with over 13,000 hours.
-- (Slowly) learning British Sign Language
+- Currently learning British Sign Language (Level 1)
